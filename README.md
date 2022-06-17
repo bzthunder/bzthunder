@@ -1,0 +1,1 @@
+hi, i've sent response e-mails re: i do not know how to install the Premium PDF Embedder on my WordPress widgets, etc. i have paid the fee & would like to start using the widget. when i try to update it, it says, "not authorized". your help in this matter will be appreciated
